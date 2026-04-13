@@ -1,2 +1,1 @@
-2 User is connected
-I'm 2nd user hellooo
+We changed it together so i delete everything;)
